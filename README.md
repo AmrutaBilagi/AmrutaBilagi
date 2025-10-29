@@ -11,7 +11,7 @@
 I’m a **Software Developer** currently building modern and responsive websites.  
 🚀 Passionate about **creating efficient web applications** and **digital marketing**.  
 🌱 Exploring new technologies and improving my **full-stack** and **machine learning** skills.  
-📫 Reach me at: **gayadolliadarsh@gmail.com**
+📫 Reach me at: **amrutabilagi8@gmail.com**
 
 ---
 
